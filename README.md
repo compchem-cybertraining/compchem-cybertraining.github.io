@@ -1,1 +1,0 @@
-# compchem-cybertraining.github.io
